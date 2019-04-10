@@ -1,4 +1,4 @@
-### These are my favoroite things
+### These are my favoroite things :sparkles:
 * K-POP
   * Tiffany Young
   * Eric Nam
