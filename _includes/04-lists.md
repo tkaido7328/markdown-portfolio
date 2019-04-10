@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+### These are my favoroite things
+* K-POP
+  * Tiffany Young
+  * Eric Nam
+  * Jay Park
+* MUJI (Minimalism)
+* Eating Breads
